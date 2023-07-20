@@ -1,1 +1,1 @@
-# uaskkfuzzy
+# UAS KECERDASAN KOMPUTASIONAL TIF 2020B 23420035 M.Abd Rohman Said Bima Yardlo
